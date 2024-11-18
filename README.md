@@ -276,7 +276,7 @@ This analysis provides a comprehensive view of Netflix's content and can help in
 
 ### Lets get connected
 
-- **LinkedIn**: [Connect with me professionally](linkedin.com/in/harnish-pambhar-a5957710a)
+- **LinkedIn**: [Connect with me professionally](https://www.linkedin.com/in/harnishpambhar)
 
 
 Thank you for your time, and I look forward to connecting with you!
